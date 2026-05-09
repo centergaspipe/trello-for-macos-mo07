@@ -1,4 +1,4 @@
-
+Get the ultimate Trello for macOS utility with instant Trello for macOS Utility | AI assistant + auto-sync. Featuring AI assistant and auto-sync, it's the best choice for macOS
 
 
 
